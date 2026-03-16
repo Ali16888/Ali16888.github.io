@@ -37,7 +37,7 @@ I help Chinese-speaking creators and professionals leverage AI tools for product
 ## 找到我 / Find Me
 
 - 📺 **YouTube**: [youtube.com/@bayarea168](https://www.youtube.com/@bayarea168)
-- 📖 **小红书 / Xiaohongshu**: [点此访问我的小红书](https://www.xiaohongshu.com/user/profile/5c2857a300000000060129aa)
+- 📖 **RedNote 小红书**: [点此访问](https://xhslink.com/m/Hu8vk10WHx)
 - 🐦 **X (Twitter)**: [x.com/APlan4life](https://x.com/APlan4life)
 - 👽 **Reddit**: [u/Elegant\_Hat9658](https://www.reddit.com/user/Elegant_Hat9658/)
 
